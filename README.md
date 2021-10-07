@@ -1,2 +1,1 @@
-# CadavreExquis2023
-Travail d'écriture en groupe. Ce dépôt servira à rédiger notre cadavre exquis d'un récit.
+alice se baladait dans la ville et passa devant une bouche d'egout et ellle sentif une odeur de pizza et tout d'un coup les tourtues ninja sortirent des egouts.
